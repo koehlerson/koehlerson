@@ -1,3 +1,3 @@
 ### What I do
 
-[Imgur](https://imgur.com/LPFEOYF)
+![pic](https://i.imgur.com/LPFEOYF.jpeg)
